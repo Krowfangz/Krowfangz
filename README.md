@@ -3,4 +3,7 @@
 he / they aroace,genderfluid. 
 
 
+![alt text](![image](https://github.com/user-attachments/assets/cbe9e3af-3e4f-4842-b04b-b7ea12b6d714)
+)
+
 ![alt text](https://64.media.tumblr.com/18db431ed8d1e5120e9821287d847054/c24e891d04d98303-10/s540x810/fa1dd4899c1a7d47a3058f0dd257476dc3e41877.pnj)
