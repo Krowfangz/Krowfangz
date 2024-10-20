@@ -14,4 +14,4 @@
 - mcyt i watch/like <3 Geminitay,Krowfang,Smajor/scott,Pearl,Grian,Ldshadowlady,Scar,Cleo,Cubfan135,StressMonster101,Knarfy,Itzsubz,Zedaph. ![alt text](https://pixels.crd.co/assets/images/gallery02/88488dee.gif?v=99d3974e)
 
 
-![alt text](https://64.media.tumblr.com/78a04a18f6a00448b3c092159bd08d1b/71948d3f4339f10d-8f/s400x600/654269b3405320298f52c2a6c6a0e80501de0602.pnj)
+![alt text](https://64.media.tumblr.com/78a04a18f6a00448b3c092159bd08d1b/71948d3f4339f10d-8f/s400x600/654269b3405320298f52c2a6c6a0e80501de0602.pnj)![alt text](https://64.media.tumblr.com/78a04a18f6a00448b3c092159bd08d1b/71948d3f4339f10d-8f/s400x600/654269b3405320298f52c2a6c6a0e80501de0602.pnj)
