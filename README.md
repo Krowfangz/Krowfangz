@@ -7,7 +7,7 @@
 - he / they aroace,genderfluid. ![alt text](https://i.ibb.co/hXwRKCz/IMG-8779.gif)
 - C+H is fine!! also feel free to int or send me a Whisper if im afk! ☆ ┆彡 ![alt text](https://i.ibb.co/85zVJSS/IMG-6378.gif)
 
-![alt text](https://cdn.discordapp.com/attachments/1052873893028843574/1297435353703256114/Untitled172_20241020004420.png?ex=6715ea55&is=671498d5&hm=be18c74f46dd0a7509cc7c5150dcfaef699438b25b159361a848ad7b9da7bc5d&)
+![alt text]([https://cdn.discordapp.com/attachments/1052873893028843574/1297435353703256114/Untitled172_20241020004420.png?ex=6715ea55&is=671498d5&hm=be18c74f46dd0a7509cc7c5150dcfaef699438b25b159361a848ad7b9da7bc5d&](https://cdn.discordapp.com/attachments/1052873893028843574/1297435353703256114/Untitled172_20241020004420.png?ex=67285f55&is=67270dd5&hm=98927f56aeba50b492f744f9ae2afe172eb1e28f1ae18db9f8a403a6a914910e&))
 
 ![alt text](https://64.media.tumblr.com/18db431ed8d1e5120e9821287d847054/c24e891d04d98303-10/s540x810/fa1dd4899c1a7d47a3058f0dd257476dc3e41877.pnj)
 - mcyt i watch/like <3 Geminitay,Krowfang,Smajor/scott,Pearl,Grian,Ldshadowlady,Scar,Cleo,Cubfan135,StressMonster101,Knarfy,Itzsubz,Zedaph. ![alt text](https://pixels.crd.co/assets/images/gallery02/88488dee.gif?v=99d3974e)
