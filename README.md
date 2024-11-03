@@ -1,4 +1,4 @@
-![alt text]([https://64.media.tumblr.com/c95607d472f84a1bac785ffe96a493ac/71948d3f4339f10d-e1/s400x600/e875b8d9e54987dae92a9ecd2d8211a53b236fab.pnj)![alt text](https://64.media.tumblr.com/c95607d472f84a1bac785ffe96a493ac/71948d3f4339f10d-e1/s400x600/e875b8d9e54987dae92a9ecd2d8211a53b236fab.pnj](https://cdn.discordapp.com/attachments/1052873893028843574/1297435353703256114/Untitled172_20241020004420.png?ex=67285f55&is=67270dd5&hm=98927f56aeba50b492f744f9ae2afe172eb1e28f1ae18db9f8a403a6a914910e&))
+
 
 
 
