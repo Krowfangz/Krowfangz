@@ -1,6 +1,7 @@
 
-![alt text](![image](https://github.com/user-attachments/assets/4226299a-cb58-4b49-879c-9cf3ae86370d)
-)
+![alt text](https://media.discordapp.net/attachments/1293525160858615828/1293842186298851369/tumblr_13ea159523cf3f3246b9379d156f9336_3c7ab484_1280.png?ex=67287bef&is=67272a6f&hm=7e4e5668917444f272d4eb851468687021f85ee0cecba751f2e9f6b62ff7d050&=&format=webp&quality=lossless)
+
+
 
 
 
